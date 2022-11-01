@@ -17,4 +17,4 @@ Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez p
 soit encore aux etudes a l'universite dans un domaine plus precis ou sinon je vais avoir mon propre restaurant bar avec des amis.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Comme j'ai dis en haut, ce serait de lancer mon propre restaurant bar/ boite de nuit avec des amis sinon ce serait d'entrer dans le monde de la musique avec mon band
